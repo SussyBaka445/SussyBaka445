@@ -1,3 +1,6 @@
+- 📞 Contact +1 ‪(513) 970-2875‬
+
+
 - 👋 Hi, I’m @SussyBaka445
 - 💞️ I’m looking to collaborate on having sex
 - 👀 I’m interested in keeping Discord webhooks safe
